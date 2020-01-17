@@ -10,7 +10,7 @@
 
 [![项目视频](http://img.youtube.com/vi/mpR1FhJ2St4/0.jpg)](https://youtu.be/mpR1FhJ2St4 "猪圈反洗脑运动倡议 An initiative of spreading truth movement in mainland China") 
 
-### 打印材料收集中 
+### A4打印材料收集中 
 
 1. [共产党隐瞒鼠疫真相](https://t.me/zhujuan2018/10707)
 2. [共产党屠杀香港🇭🇰真相](https://t.me/zhujuan2018/10709)
