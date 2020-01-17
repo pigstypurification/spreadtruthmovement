@@ -1,2 +1,37 @@
-# spreadtruthmovement
-传播真相，请在墙内的兄弟们，用打印机打印，公共场合摄像机照不到的地方，夜间遛弯，公共厕所，大学校园，扔在地上。喷墨打印机，别扔在有水的地方，激光打印机，遇水不晕染，可以打印扔在厕所，没有胶水，男同志用尿，滋在尿盆里即可。  只要几分钱，散播反共种子！你唯一能做的！   #真相传播运动 🐸🐸🐸
+## Welcome to GitHub Pages
+
+You can use the [editor on GitHub](https://github.com/pigstypurification/spreadtruthmovement/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+
+Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+
+### Markdown
+
+Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+
+```markdown
+Syntax highlighted code block
+
+# Header 1
+## Header 2
+### Header 3
+
+- Bulleted
+- List
+
+1. Numbered
+2. List
+
+**Bold** and _Italic_ and `Code` text
+
+[Link](url) and ![Image](src)
+```
+
+For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
+
+### Jekyll Themes
+
+Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/pigstypurification/spreadtruthmovement/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+
+### Support or Contact
+
+Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
