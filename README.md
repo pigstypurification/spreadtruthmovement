@@ -1,37 +1,21 @@
-## Welcome to GitHub Pages
+## 猪圈净化快讯 传播真相贴小广告 厕所革命运动 🌑🌘 🌗 🌖 🌕 🌔🌓🌒🌑 
 
-You can use the [editor on GitHub](https://github.com/pigstypurification/spreadtruthmovement/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+## [加入TG频道](http://t.me/s/zhujuan2018)
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+传播共产党不想让你知道的🐸🐸🐸，请在墙内的兄弟们，用打印机打印，公共场合摄像机照不到的地方，夜间遛弯，公共厕所，大学校园，扔在地上。喷墨打印机，别扔在有水的地方，激光打印机，遇水不晕染，可以打印扔在厕所，没有胶水，男同志用尿，滋在尿盆里即可。
 
-### Markdown
+只要几分钱，散播反共种子！你唯一能做的！ 🐸🐸🐸
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+### 猪圈反洗脑运动倡议 An initiative of spreading truth movement in mainland China
 
-```markdown
-Syntax highlighted code block
+[![项目视频](http://img.youtube.com/vi/mpR1FhJ2St4/0.jpg)](https://youtu.be/mpR1FhJ2St4 "猪圈反洗脑运动倡议 An initiative of spreading truth movement in mainland China") 
 
-# Header 1
-## Header 2
-### Header 3
+### 打印材料收集中 
 
-- Bulleted
-- List
+1. [共产党隐瞒鼠疫真相](https://t.me/zhujuan2018/10707)
+2. [共产党屠杀香港🇭🇰真相](https://t.me/zhujuan2018/10709)
+3. [武汉神秘流感失控](https://t.me/zhujuan2018/12971)
 
-1. Numbered
-2. List
+### 反馈贴小广告的进度
 
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/pigstypurification/spreadtruthmovement/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+我们希望猪圈快讯的内容可以被贴到大江南北。 投稿到：telegram：@rosemeichou
