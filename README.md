@@ -28,3 +28,7 @@ A little money makes a big influence against the CCP! Do it!🐸🐸🐸
 我们希望猪圈快讯的内容可以被贴到大江南北。 投稿到：telegram：@rosemeichou
 
 We hope that the contents of our channel can be posted all over China. Telegram:@rosemeichou  
+
+### 关于尽量使用喷墨打印机，不实用激光打印的追逐点问题。可以使用的激光打印，参考型号。Be cautious of chosing color laser printer
+
+[查询可以使用的激光打印机 Model can be applied ](https://telegra.ph/%E5%85%B3%E4%BA%8E%E5%BD%A9%E8%89%B2%E6%BF%80%E5%85%89%E6%89%93%E5%8D%B0%E6%9C%BA%E7%9A%84%E9%9A%90%E7%A7%81%E5%AE%89%E5%85%A8-01-18)
