@@ -15,7 +15,7 @@
 1. [共产党隐瞒鼠疫真相](https://t.me/zhujuan2018/10707)
 2. [共产党屠杀香港🇭🇰真相](https://t.me/zhujuan2018/10709)
 3. [武汉神秘流感失控](https://t.me/zhujuan2018/12971)
-
+4. [贸易战中国屁滚尿流](https://t.me/zhujuan2018/13059)
 ### 反馈贴小广告的进度
 
 我们希望猪圈快讯的内容可以被贴到大江南北。 投稿到：telegram：@rosemeichou
