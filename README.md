@@ -1,4 +1,5 @@
-## 猪圈净化快讯 传播真相贴小广告 厕所革命运动 （Piggsty Purification Spreadtruthmovement）🌑🌘 🌗 🌖 🌕 🌔🌓🌒🌑 
+## 猪圈净化快讯 传播真相贴小广告 厕所革命运动 🌑🌘 🌗 🌖 🌕 🌔🌓🌒🌑 
+## （Piggsty Purification Spreadtruthmovement）
 
 ## [加入TG频道 Join Channel](http://t.me/s/zhujuan2018)
 
@@ -17,10 +18,11 @@ A little money makes a big influence against the CCP! Do it!🐸🐸🐸
 
 ### A4打印材料收集中 A4 Leaflets Download 
 
-1. [共产党隐瞒鼠疫真相 The Communists hid the truth about the plague ](https://t.me/zhujuan2018/10707)
-2. [共产党屠杀香港🇭🇰真相 The truth about the Communists'massacre of Hong Kong🇭🇰 ](https://t.me/zhujuan2018/10709)
-3. [武汉神秘流感失控 Mysterious flu out of Control in Wuhan](https://t.me/zhujuan2018/12971)
-4. [贸易战中国屁滚尿流 A trade war? China Shit itself！](https://t.me/zhujuan2018/13059)
+1. [共产党隐瞒鼠疫真相 The Communists hid the truth about the plague ](https://t.me/s/zhujuan2018/10707)
+2. [共产党屠杀香港🇭🇰真相 The truth about the Communists'massacre of Hong Kong🇭🇰 ](https://t.me/s/zhujuan2018/10709)
+3. [武汉神秘流感失控 Mysterious flu out of Control in Wuhan](https://t.me/s/zhujuan2018/12971)
+4. [贸易战中国屁滚尿流 A trade war? China Shit itself！](https://t.me/s/zhujuan2018/13059)
+
 ### 反馈贴小广告的进度  Feedback on the progress of the posting
 
 我们希望猪圈快讯的内容可以被贴到大江南北。 投稿到：telegram：@rosemeichou
