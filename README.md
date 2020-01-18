@@ -5,7 +5,7 @@
 
 传播共产党不想让你知道的🐸🐸🐸，请在墙内的兄弟们，用打印机打印，公共场合摄像机照不到的地方，夜间遛弯，公共厕所，大学校园，扔在地上。喷墨打印机，别扔在有水的地方，激光打印机，遇水不晕染，可以打印扔在厕所，没有胶水，男同志用尿，滋在尿盆里即可。
 
-Spread what the Communist Party doesn't want you to know🐸🐸🐸, enslaved guys, please, print out these leaflets, throw it out of the reach of public cameras; go for a walk at night and throw it in dark, in the dry floor of public toilets, in college campuses, just on the ground. If you use the Inkjet printer, do not throw on the wet; If you use a laser printer, water does not make printing faint, you can print throw in the toilet, the wet floor and wall will be the best glue; but no glue is available, pee it!
+Spread what the Communist Party doesn't want you to know🐸🐸🐸, enslaved guys, please, print out these leaflets, throw it out of the reach of public cameras; go for a walk at night and throw it in dark, in the dry floor of public toilets, in college campuses, just on the ground. If you use the Inkjet printer, do not throw on the wet; If you use a laser printer, water does not make printing faint, you can print throw in the toilet, the wet floor and wall will be the best glue; if no glue is available, unbuckle your pants , pee it!
 
 
 只要几分钱，散播反共种子！你唯一能做的！ 🐸🐸🐸
